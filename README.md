@@ -1,1 +1,1 @@
-备若有基本，天下碌碌之辈，诚不足虑也。
+I am tormented with an everlasting itch for things remote.
